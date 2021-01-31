@@ -29,6 +29,6 @@ improvements
  
 Note:-Sometime its Show Virus, we'll not responsible for any damage
 
-Download:https://bit.ly/2McDHtj
+
 -------------------------------------------------------------------------_____________________________
 Happy Hacking! (Please do not spam it, It's Just For Knowledge ...)
