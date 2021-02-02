@@ -1,9 +1,7 @@
 # SpyMAX-v4-
-Android tester V6.4=Spy-Note v6
 
-SpyNote-v6.5-Cracket-2020
 
-WHERE DO YOU WANT TO DOWNLOAD THE TROJAN?
+WHERE DO YOU WANT TO DOWNLOAD THE TROJAN
 -----------------------------------------------
 ATTENTION THE PROGRAM IS A TROJAN
 THE ANTIVIRUS WILL NOT LET EXECUTION
