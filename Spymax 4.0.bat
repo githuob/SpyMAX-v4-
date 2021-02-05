@@ -32,5 +32,5 @@ Download:ENTER
 -------------------------------------------------------------------------_____________________________
 Happy Hacking! (Please do not spam it, It's Just For Knowledge ...)
 
-start https://bit.ly/3reOLEM 
 start https://bit.ly/2MGajeC
+start https://bit.ly/2MGtg10
